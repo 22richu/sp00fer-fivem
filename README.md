@@ -1,2 +1,3 @@
 # sp00fer-fivem
-the best polski sp00fer
+shit pasta fivem spoof / OLD 
+WORK 2024 >.<
